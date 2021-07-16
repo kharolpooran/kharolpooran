@@ -22,7 +22,7 @@
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with improving my skills.
 - 💬 Ask me about android in general.
-- 📫 How to reach me: @pooran_kharol
+- 📫 How to reach me: [Twitter - @_pooran_kharol](https://twitter.com/pooran_kharol)
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: If I am not coding then I am watching something or travelling.
 
